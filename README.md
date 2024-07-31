@@ -1,0 +1,1 @@
+# nijimasu-killer-setup
